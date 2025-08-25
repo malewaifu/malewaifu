@@ -1,5 +1,6 @@
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194112" src="https://github.com/user-attachments/assets/867f2418-252a-4df3-890c-eae0cd0a507c" />
 <div align="center"> i legit have no idea what to put here
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=malewaifu&label=　　ok　　&color=grey&style=pixel" alt="malewaifu" />
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194414" src="https://github.com/user-attachments/assets/2da93ed5-adbd-4beb-9b02-8c25d36d51ac" />
 <div align="center"> once I do figur out what2 put it'll b pretty trust
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194121" src="https://github.com/user-attachments/assets/af522dcb-6191-41e5-a396-6090c5042c0b" />
