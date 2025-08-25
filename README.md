@@ -4,7 +4,8 @@
   <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 
   　　
-<div align="center"> <img src="https://komarev.com/ghpvc/?username=malewaifu&label=　　ok　　&color=grey&style=plastic" alt="malewaifu" />
+<div align="center"> <img src="https://komarev.com/ghpvc/?username=malewaifu&label=　　ok　　&color=grey&style=plastic" alt="malewaifu" /> 　　　<img width="30" height="30" alt="Untitled340_20250825194414" src="https://github.com/user-attachments/assets/bc9e8f3b-37c0-4712-bf89-70577fd596c8" />
+
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194414" src="https://github.com/user-attachments/assets/2da93ed5-adbd-4beb-9b02-8c25d36d51ac" />
 
   
