@@ -1,4 +1,5 @@
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194112" src="https://github.com/user-attachments/assets/867f2418-252a-4df3-890c-eae0cd0a507c" />
+<div align="center">  <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 <div align="center"> i legit have no idea what to put here
   <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 
@@ -9,4 +10,5 @@
   
 <div align="center">  <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 <div align="center"> once I do figur out what2 put it'll b pretty trust
+<div align="center">  <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194121" src="https://github.com/user-attachments/assets/af522dcb-6191-41e5-a396-6090c5042c0b" />
