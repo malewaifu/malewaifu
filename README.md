@@ -10,6 +10,7 @@
 
   
 <div align="center">  <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
-<div align="center"> once I do figur out what2 put it'll b pretty trust
+<div align="center"> <img width="300" height="300" alt="Untitled387_20251219075844" src="https://github.com/user-attachments/assets/5f1202ef-db4e-465d-876d-6f43fe9eba5e" />
+
 <div align="center">  <img width="30" height="30" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/975753db-fdcb-4ac6-9b5e-57dd951aadab" />
 <div align="center"><img width="500" height="104" alt="Untitled340_20250825194121" src="https://github.com/user-attachments/assets/af522dcb-6191-41e5-a396-6090c5042c0b" />
