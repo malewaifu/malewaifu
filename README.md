@@ -2,7 +2,7 @@
 <div align="center"><img width="46" height="71" alt="Untitled708_20260726121125" src="https://github.com/user-attachments/assets/62d08700-affc-442d-be78-8b0686cc92a2" />　<img width="46" height="40" alt="old_creature_20260726122355" src="https://github.com/user-attachments/assets/431a7396-9bf5-4a9f-8c33-d78934695e02" />
 <div align="center">　
 
-<div align="center"> the most colorblind man you'll meet <img width="20" height="20" alt="IMG_4092" src="https://github.com/user-attachments/assets/ecfea2d7-7303-481b-9514-dc1672280730" />
+<div align="center"> <img width="20" height="20" alt="IMG_4096" src="https://github.com/user-attachments/assets/35bd0ee2-9034-42b9-a582-f1e0d6a577ec" /> the most colorblind man you'll meet <img width="20" height="20" alt="IMG_4092" src="https://github.com/user-attachments/assets/ecfea2d7-7303-481b-9514-dc1672280730" />
 <div align="center">　
 
 <div align="center"><img width="20" height="20" alt="IMG_4095" src="https://github.com/user-attachments/assets/9854548d-586c-4f8e-a205-d64ba7a65454" />　<img width="51" height="18" alt="IMG_4033" src="https://github.com/user-attachments/assets/74080fc3-594a-4c46-a48b-6e69fc5d5637" />　<img width="20" height="20" alt="IMG_4059" src="https://github.com/user-attachments/assets/3bfb0472-e4d8-4672-ab18-1b6b93e54789" />
